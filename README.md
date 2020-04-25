@@ -1,0 +1,1 @@
+# JopuP-2020-Assignments-EveryDay-
